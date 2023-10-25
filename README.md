@@ -5,6 +5,8 @@
 - 
 - 🌱 futura agronoma
 - 
+- 🫀 Tudo é fase
+- 
 - 🤔 15 years
 - 
 - 😄 gosto de esportes
